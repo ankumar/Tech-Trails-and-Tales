@@ -111,7 +111,8 @@ Binge Listening to **Ustad Nusrat Fateh Ali Khan**
 
 1. https://www.youtube.com/watch?v=HjdnGQoKO-8
 2. https://www.youtube.com/watch?v=mXY5-TK2sJ0
-3. https://www.youtube.com/watch?v=gY01irEl8Eo
+3. https://www.youtube.com/watch?v=zXdk8uoSFMI
+4. https://www.youtube.com/watch?v=gY01irEl8Eo
 
 ### Shoes
 
