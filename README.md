@@ -91,7 +91,7 @@ Lighting](https://www.acuitybrands.com/who-we-are/acuity-brands-lighting)
 
 ### Music
 
-**Devotional **
+**Devotional**
 
 1. https://www.youtube.com/watch?v=JwyMRHmwwYw
 2. https://www.youtube.com/watch?v=y2rPvroMk-8
@@ -106,8 +106,6 @@ Lighting](https://www.acuitybrands.com/who-we-are/acuity-brands-lighting)
 
 1. https://www.youtube.com/watch?v=hmRy5Z8PZ28
 2. https://www.youtube.com/watch?v=EfEy_PHxkPs
-3. 
-
 
 Binge Listening to **Ustad Nusrat Fateh Ali Khan**
 
