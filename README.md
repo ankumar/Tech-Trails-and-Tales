@@ -91,6 +91,24 @@ Lighting](https://www.acuitybrands.com/who-we-are/acuity-brands-lighting)
 
 ### Music
 
+**Devotional **
+
+1. https://www.youtube.com/watch?v=JwyMRHmwwYw
+2. https://www.youtube.com/watch?v=y2rPvroMk-8
+3. https://www.youtube.com/watch?v=DVwd-Id7ck4
+4. https://www.youtube.com/watch?v=xBr9FxZQPjM
+5. https://www.youtube.com/watch?v=ANk4fmRNyuE
+6. https://www.youtube.com/watch?v=y3fa4alhKW4
+7. https://www.youtube.com/watch?v=442ewPgXHQ0
+8. https://www.youtube.com/watch?v=D8hF5uSP3u8
+
+**Pandit Jasraj**
+
+1. https://www.youtube.com/watch?v=hmRy5Z8PZ28
+2. https://www.youtube.com/watch?v=EfEy_PHxkPs
+3. 
+
+
 Binge Listening to **Ustad Nusrat Fateh Ali Khan**
 
 1. https://www.youtube.com/watch?v=HjdnGQoKO-8
