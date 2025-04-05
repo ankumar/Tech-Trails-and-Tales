@@ -117,14 +117,13 @@ Binge Listening to **Ustad Nusrat Fateh Ali Khan**
 ### Shoes
 
 1. https://www.nytimes.com/wirecutter/blog/onitsuka-tiger-mexico-66-sneakers/
-2. 
-3. https://www.altrarunning.com/
-4. https://rothys.com/
-5. https://www.asics.com/us/en-us/stability-shoes/c/aa50400000/
-6. https://neemans.com/ 
-7. https://www.diadora.com/
-8. https://www.greats.com/
-9. https://sneakernews.com/category/adidas/ 
+2. https://www.altrarunning.com/
+3. https://rothys.com/
+4. https://www.asics.com/us/en-us/stability-shoes/c/aa50400000/
+5. https://neemans.com/ 
+6. https://www.diadora.com/
+7. https://www.greats.com/
+8. https://sneakernews.com/category/adidas/ 
 
 ### Travel
 
